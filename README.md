@@ -1,5 +1,5 @@
-# I love my friends
-My messagez to my friends! 
+# ꪱׁׁׁׅׅׅ ᥣׁׅ֪ᨵׁׁׅׅׅ᥎ׁׅꫀׁׅܻ݊ ꩇׁׅ֪݊ᨮׁׅ֮ ܻ⨍ꭈׁׅꪱׁׁׁׅׅׅꫀׁׅܻ݊݊ꪀժׁׅׅ݊꯱! 
+ꩇׁׅ֪݊ᨮׁׅ֮ ꩇׁׅ֪݊ꫀׁׅܻׅ݊꯱ׅ꯱ɑׁׅᧁׁꫀׁׅܻׅ݊ tׁׅᨵׁׅׅ ꩇׁׅ֪݊ᨮׁׅ֮ ܻ⨍ꭈׁׅꪱׁׁׁׅׅׅꫀׁׅܻ݊݊ꪀժׁׅׅ݊꯱! 
 
 
 [@lilsweeterlilbitter](https://github.com) ➼ hi my best online friend ever just so you know you very much made my year im so happy that I get to be with you so happy that im friends with you I love you Platoniccally ♡⸜(ˆᗜˆ˵ )⸝♡
